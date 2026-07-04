@@ -1,4 +1,4 @@
 
 
-[![MasterHead](https://imgur.com/a/hero-ES5HrQv.jpeg)](https://github.com/ai-oub/ai-oub)
+[Imgur](https://imgur.com/kms3wzp)
 
