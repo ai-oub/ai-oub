@@ -1,4 +1,2 @@
-
-
-[Imgur](https://imgur.com/kms3wzp)
+![Imgur](https://i.imgur.com/kms3wzp.jpg)
 
